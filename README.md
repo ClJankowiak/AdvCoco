@@ -1,2 +1,2 @@
 # AdvCoco
-Adventure communism
+Adventure communist
